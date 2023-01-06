@@ -55,5 +55,5 @@ Serves 2 \| 20-30 mins \| 1 pan wonder (but quite a few bowls)
 	- Mix all the **sauce ingredients** in a bowl
 
 3. Heat up **olive oil** in a large frying pan on a medium high heat (6. on induction). When it's hot add the **tofu** and start frying. After about 8 mins should be fairly browned. At this point add the **garlic** and cook for another minute or so.
-4. Move the tofu and garlic to one half of the pand, scramble the **eggs** in the other half. Once it's scrambled add the **peanuts** then the **noodles**, then the **sauce** and mix.  Heat this all through for a couple of mins. At the last minute add most of the **spring onions** and **coriander**.
+4. Move the tofu and garlic to one half of the pan, scramble the **eggs** in the other half. Once it's scrambled add the **peanuts** then the **noodles**, then the **sauce** and mix.  Heat this all through for a couple of mins. At the last minute add most of the **spring onions** and **coriander**.
 5. Plate up in pasta bowls. Give everyone some **lime wedges**, and top the noodles with the left over spring onions, coriander and optional chilies. 
