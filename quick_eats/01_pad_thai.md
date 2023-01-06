@@ -45,7 +45,7 @@ Serves 2 \| 20-30 mins \| 1 pan wonder (but quite a few bowls)
 1. Cover **noodles** in boiled water and leave for 10 mins, meanwhile crack on with the next steps. When the 10 mins is up drain the noodles and rinse in cold water. 
 
 2. Prep ingredients for cooking you will need at least 3 bowls for this bit:
-	- Cut **tofu** into bitesized chunks and dry any liquid off with a towel. Put in a bowl and coat with **cornflour** and **salt**
+	- Cut **tofu** into bite sized chunks and dry any liquid off with a towel. Put in a bowl and coat with **cornflour** and **salt**
 	- Cut **peanuts** into chunks
 	- Slice **limes** into wedges
 	- Slice **spring onions** and **coriander**
