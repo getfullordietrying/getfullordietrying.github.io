@@ -34,11 +34,11 @@ Serves 2 \| 30 mins \| 2 pans
 1. Get your **rice** on, this will take the most time to cook.
 1. As soon as you have done that, start prepping your other ingredients:
     - Top and tail the **green beans** (you can go to step 3. once this is done if you're in a hurry)
-    - Mix all the **sauce ingredients** in a small bowl, ensure sugar is fully disolved.
+    - Mix all the **sauce ingredients** in a small bowl, ensure sugar is fully dissolved.
     - Mince the **ginger and garlic** (Microplane is good for this)
-    - Cut your **dried chilis** into three
+    - Cut your **dried chilies** into three
 1. Get a large frying pan heated up nice and hot with the **oil**. Add the **green beans** and cook for around 10-15 mins until they are nice and brown. Finish prepping your other ingredients while this is happening. Once the beans are cooked set them aside.
 1. Add some more **oil** to the pan and add the **peppercorns**, set aside when they are brown.
-1. Add the **pork** and cook until brown, then add the **chilis, garlic, ginger** and fry for 30 seconds or so.
+1. Add the **pork** and cook until brown, then add the **chilies, garlic, ginger** and fry for 30 seconds or so.
 1. Finally chuck the **beans** and **peppercorns** in again with the **sauce** and cook for a couple more mins until the sauce has mostly been absorbed. 
 1. Your **rice** is probably done by now so get it drained and plate everything up.
