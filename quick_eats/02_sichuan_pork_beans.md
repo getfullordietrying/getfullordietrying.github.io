@@ -23,7 +23,7 @@ Serves 2 \| 30 mins \| 2 pans
 
 - A few tbsp of your preferred frying oil
 - 300g green beans
-- 250g minced pork
+- 250g minced pork (you can scale the bean:pork ratio as you wish)
 - 1tsp Szechuan peppercorn
 - As many [dried chili peppers](https://www.souschef.co.uk/products/long-dried-chilli) as you fancy 
 - Thumb sized bit of ginger
