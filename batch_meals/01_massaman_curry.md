@@ -6,7 +6,9 @@ parent: Batch meals
 
 # Massaman curry
 
-Serves 4-6 \| 40-60 mins 
+Serves 4-6 \| 40-60 mins
+
+You can easily double up this recipe for even more curry. Just make sure you have a big enough Dutch oven (a stock pot would do).
 
 ## Ingredients
 
