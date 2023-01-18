@@ -19,6 +19,7 @@ You can easily double up this recipe for even more curry. Just make sure you hav
 #### Protein
 
 - 650g chicken thighs (skin on or off, bone in or out, whatever you can get)
+
 **OR**
 - A big block of firm tofu (around 400g or so)
 - cornflour
