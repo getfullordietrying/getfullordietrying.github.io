@@ -36,7 +36,7 @@ You can easily double up this recipe for even more curry. Just make sure you hav
 - 3 star anise
 - 2 kaffir lime leaves (optional)
 - 1 cinnamon stick
-- 1 can coconut milk (full fat, reduced fat is shit and won't help you lose weight)
+- 1 can coconut milk (full fat)
 - 500g potatoes
 - 80g roasted unsalted peanuts (or unroasted and dry fry them for a bit)
 - 1-2 tbsp fish sauce
