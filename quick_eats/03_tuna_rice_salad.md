@@ -14,7 +14,7 @@ Serves 2 \| 30 mins max \| 1 pan
 - 1/2 cucumber
 - 1 red onion
 - 2 sticks of celery
-- 2tbsp capers
+- 2 tbsp capers
 - handful of parsley
 
 #### Dressing
