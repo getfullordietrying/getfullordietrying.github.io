@@ -1,5 +1,4 @@
 ---
-layout: default
 title: Chana Masala
 parent: Batch meals
 ---

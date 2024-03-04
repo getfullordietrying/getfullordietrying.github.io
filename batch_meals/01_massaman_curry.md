@@ -1,5 +1,4 @@
 ---
-layout: default
 title: Massaman curry
 parent: Batch meals
 ---
